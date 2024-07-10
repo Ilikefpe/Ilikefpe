@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on (idk?)
 - 📫 How to reach me (idk...)
 - 😄 Pronouns: Ilikefpe/Im_calis
-- ⚡ Fun fact: search this on Google...https://m.youtube.com/watch?v=hBMl8qsmvSE
+- ⚡ Fun fact: search this on Google...https://m.youtube.com/watch?v=OofK1k1lgLs
 
 <!---
 Ilikefpe/Ilikefpe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
