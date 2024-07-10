@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on (idk?)
 - 📫 How to reach me (idk...)
 - 😄 Pronouns: Ilikefpe/Im_calis
-- ⚡ Fun fact: search this on Google...https://m.youtube.com/watch?v=2gTnCHVQ4tI
+- ⚡ Fun fact: search this on Google...https://m.youtube.com/watch?v=M7NvW__A4QA
