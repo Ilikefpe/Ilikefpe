@@ -2,6 +2,6 @@
 - 👀 I’m interested in fundamental paper education.
 - 🌱 I’m currently learning studies.
 - 💞️ I’m looking to collaborate on (idk?)
-- 📫 How to reach me (idk...)
+- 📫 How to reach me (yahoo/twitter/youtube/tiktok)
 - 😄 Pronouns: Ilikefpe/Im_calis
 - ⚡ Fun fact: search this on Google...https://m.youtube.com/watch?v=B_UjTv6eH4I&pp=ygUHS2FhYXRpZQ%3D%3D
